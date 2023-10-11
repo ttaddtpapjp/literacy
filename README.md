@@ -1,3 +1,1 @@
-# literacy
-
-2342009
+I love [wikipedia](https://ja.wikipedia.org)!
